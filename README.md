@@ -1,4 +1,4 @@
-# TODAY ▼ + SOON ▶
+# TODAY + SOON
 
 Two cards, set up for use with Moo’s 84mm × 55mm business card template.
 https://www.moo.com/uk/business-cards/design-guidelines-dyo
